@@ -120,4 +120,4 @@ Here are both **brief** and **detailed** notes on the topics related to **Listen
 
 
 
-These notes should help you in your **Professional Communication** studies. Let me know if you need any more clarification!
+These notes should help you in your **Professional Communication** studies.
